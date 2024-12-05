@@ -1,4 +1,4 @@
-👋 Hey there, I’m Victor
+👋 Hola, I’m Victor
 
 👀 Music lover, tech enthusiast, and lifelong learner
 
